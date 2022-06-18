@@ -1,2 +1,0 @@
-# Portfolio
-Jatinder Kumar Profile 
